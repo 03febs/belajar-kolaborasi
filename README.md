@@ -1,3 +1,3 @@
 # belajar-kolaborasi
 
-belajar kuy semangat
+belajar kuy semangat bro
